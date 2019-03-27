@@ -1,4 +1,4 @@
-Gana Dinero en Internet en Dólar y Criptomoneda Solo con Referir y Completar Tareas Diarias
+Gana Dinero en Internet en Dólar y Bitcoin Solo con Referir y Completar Tareas Diarias
 -----------------------
 Entra Aquí _ http://bit.ly/2M0kYeH
 -----------------------
