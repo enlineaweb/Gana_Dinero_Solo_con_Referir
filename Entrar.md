@@ -4,6 +4,8 @@ Gana Solo con Enlaces _ https://tinyurl.com/y45n658u
 -----------------------
 Gana Referidos Diarios con Grupos de Whatsapp _ https://tinyurl.com/y45n658u
 -----------------------
+Gana Solo con Registrate _ Próximamente _
+-----------------------
 ¡ Únete a Esta Nueva Comunidad de Emprendedores por Internet !
 -----------------------
 Suscríbete a la Comunidad en Línea Para Estar al Tanto de los Nuevos Cursos y Recursos Gratis _ https://tinyurl.com/y2fwhpac
