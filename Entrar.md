@@ -2,9 +2,9 @@ Gana Dinero en Internet en Dólar y Bitcoin Solo con Referir y Completar Tareas 
 -----------------------
 Gana Solo con Enlaces _ https://tinyurl.com/y45n658u
 -----------------------
-Gana Referidos Diarios con Grupos de Whatsapp _ https://tinyurl.com/y45n658u
------------------------
 Gana Solo con Registrate _ Próximamente _
+-----------------------
+Gana Referidos Diarios con Grupos de Whatsapp _ https://tinyurl.com/y45n658u
 -----------------------
 ¡ Únete a Esta Nueva Comunidad de Emprendedores por Internet !
 -----------------------
