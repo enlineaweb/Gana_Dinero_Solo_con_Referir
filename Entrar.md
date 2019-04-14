@@ -1,6 +1,6 @@
-Gana Dinero en Internet en Dólar y Bitcoin Solo con Referir y Completar Tareas Diarias
+Gana Dinero en Internet en Dólar y Bitcoin Solo con Referir y Completar Tareas Diarias _ Entra Aquí _ http://bit.ly/2M0kYeH
 -----------------------
-Entra Aquí _ http://bit.ly/2M0kYeH
+Gana Solo con Enlaces _ https://tinyurl.com/y45n658u
 -----------------------
 Gana Referidos Diarios con Grupos de Whatsapp _ https://tinyurl.com/y45n658u
 -----------------------
